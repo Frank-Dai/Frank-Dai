@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Frank-Dai
+- 📫 E-mail daishengle20050809@outlook.com
+- 🏫 Planning to learn abroad (Im Chinese)
